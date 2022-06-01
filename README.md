@@ -1,2 +1,2 @@
 # rsschool-cv
-CV
+https://TatsianaKulakevich.github.io/rsschool-cv/cv
