@@ -1,4 +1,10 @@
 Tatsiana Kulakevich, PhD
+======
+My Name is Tatsiana Kulakevich, and I am an Assistant Professor of Instruction in the School of Interdisciplinary Global Studies, Research Fellow and Affiliate Faculty at the Institute on Russia at the University of South Florida.
+
+My research focuses on international political economy, migration, and ethnic politics. My specialties include Comparative Politics, International Relations, Eastern European politics, and Quantitative Methods.
+
+My analyses appeared in media and academic journals, including The Monkey Cage - Washington Post, The Conversation, The Globe Post, The New Eastern Europe, SAIS Review, East European Politics and Societies: and Cultures, International Migration, and Canadian Slavonic Papers.
 
 Education
 ======
